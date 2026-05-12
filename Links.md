@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-12 14:32 IR
+- 🎬 [تحلیل_روزانه_فارکس554___بازار_سهام_و_حباب_هوش_مصنوعی_،_سقوط_بزرگ.mp4](https://github.com/AbolfazlHazbaian/sandbox/raw/main/dl/%D8%AA%D8%AD%D9%84%DB%8C%D9%84_%D8%B1%D9%88%D8%B2%D8%A7%D9%86%D9%87_%D9%81%D8%A7%D8%B1%DA%A9%D8%B3554___%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1_%D8%B3%D9%87%D8%A7%D9%85_%D9%88_%D8%AD%D8%A8%D8%A7%D8%A8_%D9%87%D9%88%D8%B4_%D9%85%D8%B5%D9%86%D9%88%D8%B9%DB%8C_%D8%8C_%D8%B3%D9%82%D9%88%D8%B7_%D8%A8%D8%B2%D8%B1%DA%AF.mp4) `63.1MB`
+
+---
+
+
 ### 📅 2026-05-12 14:28 IR
 - 🗜️ [تحلیل_روزانه_فارکس555___آماده_برای_حرکت_،_رییس_جدید_فدرال_رزرو_داره_میاد.7z.001](https://github.com/AbolfazlHazbaian/sandbox/raw/main/dl/%D8%AA%D8%AD%D9%84%DB%8C%D9%84_%D8%B1%D9%88%D8%B2%D8%A7%D9%86%D9%87_%D9%81%D8%A7%D8%B1%DA%A9%D8%B3555___%D8%A2%D9%85%D8%A7%D8%AF%D9%87_%D8%A8%D8%B1%D8%A7%DB%8C_%D8%AD%D8%B1%DA%A9%D8%AA_%D8%8C_%D8%B1%DB%8C%DB%8C%D8%B3_%D8%AC%D8%AF%DB%8C%D8%AF_%D9%81%D8%AF%D8%B1%D8%A7%D9%84_%D8%B1%D8%B2%D8%B1%D9%88_%D8%AF%D8%A7%D8%B1%D9%87_%D9%85%DB%8C%D8%A7%D8%AF.7z.001) `95.0MB`
 
