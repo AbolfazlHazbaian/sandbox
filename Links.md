@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 14:21 IR
+- 🎬 [تحلیل_روزانه_فارکس556___زنگ_خطر_تورم_و_بازار_کار_آمریکا،_بحران_بازارهای_جهانی.mp4](https://github.com/AbolfazlHazbaian/sandbox/raw/main/dl/%D8%AA%D8%AD%D9%84%DB%8C%D9%84_%D8%B1%D9%88%D8%B2%D8%A7%D9%86%D9%87_%D9%81%D8%A7%D8%B1%DA%A9%D8%B3556___%D8%B2%D9%86%DA%AF_%D8%AE%D8%B7%D8%B1_%D8%AA%D9%88%D8%B1%D9%85_%D9%88_%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1_%DA%A9%D8%A7%D8%B1_%D8%A2%D9%85%D8%B1%DB%8C%DA%A9%D8%A7%D8%8C_%D8%A8%D8%AD%D8%B1%D8%A7%D9%86_%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1%D9%87%D8%A7%DB%8C_%D8%AC%D9%87%D8%A7%D9%86%DB%8C.mp4) `50.4MB`
+
+---
+
+
 ### 📅 2026-05-13 23:23 IR
 - 🎬 [امنیت_در_شبکه_های_اجتماعی_برای_کاربران_ایرانی_و_ردپای_دیجیتالی_در_۲۰۲۶.mp4](https://github.com/AbolfazlHazbaian/sandbox/raw/main/dl/%D8%A7%D9%85%D9%86%DB%8C%D8%AA_%D8%AF%D8%B1_%D8%B4%D8%A8%DA%A9%D9%87_%D9%87%D8%A7%DB%8C_%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%DB%8C_%D8%A8%D8%B1%D8%A7%DB%8C_%DA%A9%D8%A7%D8%B1%D8%A8%D8%B1%D8%A7%D9%86_%D8%A7%DB%8C%D8%B1%D8%A7%D9%86%DB%8C_%D9%88_%D8%B1%D8%AF%D9%BE%D8%A7%DB%8C_%D8%AF%DB%8C%D8%AC%DB%8C%D8%AA%D8%A7%D9%84%DB%8C_%D8%AF%D8%B1_%DB%B2%DB%B0%DB%B2%DB%B6.mp4) `47.9MB`
 
